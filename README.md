@@ -1,6 +1,12 @@
 ###  Welcome to my cozy place ☕️
 
+_```Just be yourself and live the best you can 🪐```_
 
-Eu sou a Sayuri
 
--tenho 17 anos;
+
+
+
+
+
+
+
